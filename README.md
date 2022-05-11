@@ -5,3 +5,4 @@
 * Cryptobros/People with hexagonal profile pics
 * Pedophiles/MAPs
 * Proshippers
+* Nazis
