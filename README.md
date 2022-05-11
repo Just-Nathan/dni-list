@@ -4,3 +4,4 @@
 * NSFW accounts
 * Cryptobros/People with hexagon profile pics
 * Pedophiles/MAPs
+* Proshippers
