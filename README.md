@@ -6,3 +6,4 @@
 * Pedophiles/MAPs
 * Proshippers
 * Nazis
+* Lightsaber328TheMan or anybody who supports him
